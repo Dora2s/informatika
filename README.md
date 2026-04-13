@@ -1,0 +1,2 @@
+# informatika
+pranki / virusi lol
